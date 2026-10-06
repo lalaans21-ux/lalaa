@@ -1,0 +1,2 @@
+# lalaa
+Gerak Lurus
